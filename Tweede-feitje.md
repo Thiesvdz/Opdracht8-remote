@@ -1,0 +1,2 @@
+AMOG	
+Vogels zijn amfibieren
